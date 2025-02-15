@@ -1,4 +1,10 @@
-## Hi there 👋
+✨ Cure Code ♡ Pretty Cure ✨
+私魔力　Code、願望世界快楽保護。今力弱、一生懸命頑張。
+皆為、毎日動画・本見、一杯魔力学習、沢山実践練習、問題解決、後文章発表、知識伝播、色色大変、満足。
+将来未知、一寸不安・戸惑、皆側、私応援、感謝。心暖、力湧出、矢張笑顔一番大切物。
+
+
+最後、上文章理解人、本当最高。
 
 <!--
 **Hosinoharu/Hosinoharu** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
